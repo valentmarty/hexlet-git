@@ -1,1 +1,0 @@
-Proizvolnoe soderjimoe
